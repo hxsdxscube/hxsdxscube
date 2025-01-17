@@ -1,3 +1,4 @@
+![egg](https://github.com/user-attachments/assets/da098e2c-3a51-43fa-ab86-2d6327235924)
 # heyyy, i'm illya (aka hxsdxscube)
 
 ***i'm into leveling up in stuff like programming, learning english, beatmaking, shredding on the guitar, and doodling. so yeah, i guess you could say i'm a creative dude.
